@@ -1,1 +1,1 @@
-https://github.com/daytonq/ono-tebe-nado-ad
+Link: https://github.com/daytonq/ono-tebe-nado-ad
